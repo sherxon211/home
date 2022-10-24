@@ -1,1 +1,1 @@
-# sherzodpro.github.io
+# sherzod.github.io
